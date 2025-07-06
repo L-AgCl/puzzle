@@ -1,2 +1,2 @@
 # puzzle
-a internet puzzle for Chinese Windows users
+A puzzle for my friends who want porn articles
